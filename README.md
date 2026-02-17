@@ -57,6 +57,7 @@ https://ethtective.com/
 
 https://blockpath.com/
 
+https://bluepages.fyi
 
 ## Scam Alert:
 
